@@ -16,3 +16,8 @@ Gamer Boy
 KarmaOS and its creator (Gamer Boy) is not responsible for any trouble you get in such as arrest or any type of federal trouble!
 
 Dont get caught ;)
+
+# DONT COPY!
+If you copy this or use without my consent.
+
+I will give YOU KARMA:))))))))))
