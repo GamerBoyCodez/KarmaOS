@@ -1,5 +1,5 @@
 # KarmaOS
-An OS I am working on that will be kinda cool.
+An OS I am working on that will be kinda cool. Has multiple functions!
 
 # Why KarmaOS?
 KarmaOS is a OS designed with some functions that work. 
@@ -11,5 +11,5 @@ Gamer Boy
 (Just me Like Always)
 
 # Disclaimer!
-KarmaOS and its creator is not responsible for any trouble you get in such as arrest or any type of federal trouble!
+KarmaOS and its creator (Gamer Boy) is not responsible for any trouble you get in such as arrest or any type of federal trouble!
 Dont get caught ;)
